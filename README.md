@@ -48,6 +48,7 @@
 | Don't You Worry Child | [YouTube](https://www.youtube.com/watch?v=1y6smkh6c-0) | [Wikipedia](https://en.wikipedia.org/wiki/Don%27t_You_Worry_Child) | [Lyrics](https://www.azlyrics.com/lyrics/swedishhousemafia/dontyouworrychild.html) |
 | Remember the Name | [YouTube](https://www.youtube.com/watch?v=VDvr08sCPOc) | [Wikipedia](https://en.wikipedia.org/wiki/Remember_the_Name) | [Lyrics](https://www.azlyrics.com/lyrics/fortminor/rememberthename.html) |
 | We Will Recover | [Youtube](https://www.youtube.com/watch?v=XHC3O1bwTzk) | [Wikipedia](https://de.wikipedia.org/wiki/Kaaze) | [Lyrics](https://www.azlyrics.com/k/kaaze.html) |
+| Pineapple Skies | [Youtube](https://www.youtube.com/watch?v=eKwAib6LosM) | [Wikipedia](https://en.wikipedia.org/wiki/War_%26_Leisure) | [Lyrics](https://genius.com/Miguel-pineapple-skies-lyrics) |
 
 
 ## Videos
